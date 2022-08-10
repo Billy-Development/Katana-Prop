@@ -1,4 +1,5 @@
-this is a prop made by discord-bunny🐇#1920/https://github.com/Bunny5578
+this is a prop made by discord - Kitty 🐈🤍#7758 for the prop
+/https://github.com/Bunny5578
 
 to use this you must download 
 devyn-backitems - https://github.com/darktrovx/devyn-backitems
